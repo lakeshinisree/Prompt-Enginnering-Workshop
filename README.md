@@ -1,4 +1,4 @@
-🧠 Prompt Engineering & Agentic AI Workshop
+
 👤 Name:Kuntamukkala Lakeshini sree 
 🎓 College: Siddhartha Academy of Higher Education
 📅 Date:23th March 2026
